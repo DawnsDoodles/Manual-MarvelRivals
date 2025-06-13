@@ -1,2 +1,7 @@
-# Manual-MarvelRivals
-Gather your AP Chronovium through playing rounds of your favorite Marvel characters
+# Marvel Rivals (AP Manual)
+[under construction]
+
+## What Are You Searching For?
+
+
+## Play Guide
